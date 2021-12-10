@@ -1,1 +1,1 @@
-# Macedonia-Web-Template
+# Macedonia
